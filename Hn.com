@@ -1,0 +1,1 @@
+[ ♤♤♤ FYTER KA BAAP ENTER 😈 ■■ ]
